@@ -1,0 +1,1 @@
+# Kimpo-TERMS-of-SERVICE
